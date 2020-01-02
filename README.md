@@ -3,6 +3,7 @@
 
 ## 相关学习链接
 - 一个网站的题库 https://www.educity.cn/tiku/zt100110011003-1.html
+- pdf文件改天再传吧
 
 ## 专业词汇
 
